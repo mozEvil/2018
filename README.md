@@ -1,2 +1,2 @@
-# 2018
+# Other
 books and articles
